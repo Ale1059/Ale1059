@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Ale1059
+- 👀 I’m still a bit young (13) but i'm learning how to code
+- 🌱 I’m currently learning coding
